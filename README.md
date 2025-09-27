@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @tpatrouillat
-- 👀 I’m interested in product management but especially in the fintech industry
+- 👀 I’m interested in product management but especially in the fintech industry and productivity related topics
 - 💞️ I’m looking to to join a meaningful project
 - 📫 How to reach me : tpatrouillat on social networks 
 
